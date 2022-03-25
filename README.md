@@ -1,11 +1,11 @@
-# 𝐃𝐞𝐯𝐢𝐥 𝐅𝐢𝐥𝐞𝐬 𝐒𝐭𝐨𝐫𝐞
+# 𓆩🕊️⃝𝐑𝐀𝐈𝐂𝐇𝐔𓆪 ™ 𝐅𝐢𝐥𝐞𝐬 𝐒𝐭𝐨𝐫𝐞
 
 𝐓𝐞𝐥𝐞𝐠𝐫𝐚𝐦 𝐁𝐨𝐭 𝐭𝐨 𝐬𝐭𝐨𝐫𝐞 𝐏𝐨𝐬𝐭𝐬 𝐚𝐧𝐝 𝐃𝐨𝐜𝐮𝐦𝐞𝐧𝐭𝐬 𝐚𝐧𝐝 𝐢𝐭 𝐜𝐚𝐧 𝐀𝐜𝐜𝐞𝐬𝐬 𝐛𝐲 𝐒𝐩𝐞𝐜𝐢𝐚𝐥 𝐋𝐢𝐧𝐤𝐬.
 𝐈 𝐆𝐮𝐞𝐬𝐬 𝐓𝐡𝐢𝐬 𝐖𝐢𝐥𝐥 𝐁𝐞 𝐔𝐬𝐞𝐟𝐮𝐥𝐥 𝐅𝐨𝐫 𝐌𝐚𝐧𝐲 𝐏𝐞𝐨𝐩𝐥𝐞.....😇.
 
 ##
 
-**𝘐𝘧 𝘠𝘰𝘶 𝘕𝘦𝘦𝘥 𝘈𝘯𝘺 𝘔𝘰𝘳𝘦 𝘔𝘰𝘥𝘦𝘴 𝘪𝘯 𝘙𝘦𝘱𝘰 𝘖𝘳 𝘐𝘧 𝘠𝘰𝘶 𝘍𝘪𝘯𝘥 𝘖𝘶𝘵 𝘈𝘯𝘺 𝘉𝘶𝘨𝘴, 𝘔𝘦𝘯𝘵𝘪𝘰𝘯 𝘐𝘯 [@JaiHindChatting ](https://www.telegram.dog/JaiHindChatting)**
+**𝘐𝘧 𝘠𝘰𝘶 𝘕𝘦𝘦𝘥 𝘈𝘯𝘺 𝘔𝘰𝘳𝘦 𝘔𝘰𝘥𝘦𝘴 𝘪𝘯 𝘙𝘦𝘱𝘰 𝘖𝘳 𝘐𝘧 𝘠𝘰𝘶 𝘍𝘪𝘯𝘥 𝘖𝘶𝘵 𝘈𝘯𝘺 𝘉𝘶𝘨𝘴, 𝘔𝘦𝘯𝘵𝘪𝘰𝘯 𝘐𝘯 [@raichu_support ](https://www.telegram.dog/raichu_support)**
 
 ### Features
 - Fully customisable.
@@ -51,7 +51,7 @@
 ## ✨ 𝐏𝐥𝐞𝐚𝐬𝐞 𝐒𝐮𝐩𝐩𝐨𝐫𝐭 𝐇𝐞𝐫𝐞 ✨
 
 ### 𝙎𝙥𝙚𝙘𝙞𝙖𝙡 𝘾𝙧𝙚𝙙𝙞𝙩𝙨 ⚡
-- [🕊️⃝🇮🇳★𝐃𝐞𝐯𝐢𝐋😈𝐇𝐚𝐜𝐤𝐞𝐫★🇮🇳⃝🕊️](https://t.me/JaiHindChatting) 𝐃𝐞𝐯𝐞𝐥𝐨𝐩𝐞𝐫
+- [𓆩🕊️⃝𝐑𝐀𝐈𝐂𝐇𝐔𓆪 ™] (https://t.me/tele_family_69) 𝐃𝐞𝐯𝐞𝐥𝐨𝐩𝐞𝐫
 
 ### 𝐒𝐮𝐩𝐩𝐨𝐫𝐭 & 𝐔𝐩𝐝𝐚𝐭𝐞𝐬 🎑
-<a href="https://t.me/JaiHindChatting"><img src="https://img.shields.io/badge/Join-Group%20Support-blue.svg?style=for-the-badge&logo=Telegram"></a> <a href="https://t.me/SonalModdingGod"><img src="https://img.shields.io/badge/Join-Updates%20Channel-blue.svg?style=for-the-badge&logo=Telegram"></a>
+<a href="https://t.me/tele_family_69"><img src="https://img.shields.io/badge/Join-Group%20Support-blue.svg?style=for-the-badge&logo=Telegram"></a> <a href="https://t.me/SonalModdingGod"><img src="https://img.shields.io/badge/Join-Updates%20Channel-blue.svg?style=for-the-badge&logo=Telegram"></a>
